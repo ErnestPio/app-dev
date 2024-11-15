@@ -15,4 +15,4 @@ Here are some of my all-time favorite movies:
   I just love this sci-fi movie.
 
 ***Spider-Man: Into the Spider-Verse***
-  Best animated film with an incredible story and visuals.
+Best animated film with an incredible story and visuals.
